@@ -10,3 +10,4 @@ Herkese selam ben Zeus Nitro Üretme ve Checkleme programını tanıtacağım İ
 ![2 kullanım](https://user-images.githubusercontent.com/67175233/147991987-8216e492-0818-4bea-a62b-a782f35f05b4.png)
 
 3-) Daha sorna nitrolar üretilmeye ve cheklenmeye başlıyor. İyi Şanslar Dilerim 🎉
+![3 kullanım](https://user-images.githubusercontent.com/67175233/147992179-d3616e9b-1805-432f-9163-60c4125c29e1.png)
